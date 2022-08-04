@@ -10,3 +10,5 @@ Meus hobbies preferidos são cozinhar, assistir jogos(Fanático pelo Internacion
 <br>
 Tenho conhecimento em JavaScript e MySQL.
 Minha meta é buscar conhecimento em diversisas linguagens e em seguida cursar Engenharia de Software.
+
+<img src=https://thumbs.gfycat.com/FrankPhonyJohndory-size_restricted.gif >
